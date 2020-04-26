@@ -1,5 +1,3 @@
-# Hana Links
-
 # 오프라인 예배 참석 신청서
 https://forms.gle/gbqte8MU25nsx6ct9
 
