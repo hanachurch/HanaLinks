@@ -6,7 +6,7 @@
 ## 찬양 릴레이
 - [악보 - 모든 상황 속에서](https://images.app.goo.gl/teyKwVRmoQisgpiH8)
 
-- [반주 음원 - 모든 상황 속에서](https://youtu.be/BPZ3z5awpsY)
+- [반주 음원 - 모든 상황 속에서](https://youtu.be/A03RbDd5Bi0)
 
 - [찬양 동영상 업로드](http://76.169.21.23/wl/?id=riirAdYfb3x0OmgODcZNLCRWT1PWIdU2&mode=regular)
 
