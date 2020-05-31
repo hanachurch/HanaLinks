@@ -11,7 +11,7 @@
 아래의 주제를 중심으로 자유롭고 참신한 아이디어로 촬영하셔서, 동영상 업로드 링크를 이용해 전송해주시면 됩니다. 도움이 필요하시면 교회로 연락주세요.
 (주제별 촬영 분량은 3분 이하로 해주시고, 원하시면 여러 주제를 담은 다수의 영상을 보내주셔도 좋습니다.)
 
-### [동영상 업로드 링크](http://76.169.21.23/wl/?id=riirAdYfb3x0OmgODcZNLCRWT1PWIdU2&mode=regular)
+
 
 ### 동영상 주제
 
@@ -20,10 +20,10 @@
 #### 3. 영상 편지 (그리운 하나교회에 띄우는 메세지)
 #### 4. 집콕 인터뷰 (가족소개/ 자가격리 가장 힘든 점?/ 그래도 좋은점이 있다면?)
 #### 5. 함께 부르는 찬양 ("모든 상황 속에서"를 반주(MR)에 맞춰 불러주세요.) 
-    [악보 다운로드](https://images.app.goo.gl/teyKwVRmoQisgpiH8)
-    [반주 음원 다운로드](https://youtu.be/A03RbDd5Bi0)
+-    [악보 다운로드](https://images.app.goo.gl/teyKwVRmoQisgpiH8)
+-    [반주 음원 다운로드](https://youtu.be/A03RbDd5Bi0)
 
-
+### [동영상 업로드 링크](http://76.169.21.23/wl/?id=riirAdYfb3x0OmgODcZNLCRWT1PWIdU2&mode=regular)
 
 
 
