@@ -1,4 +1,4 @@
-#
+#  
 
 ## 오프라인 예배 준비를 위한 가족 동영상 보내기
 
@@ -23,7 +23,7 @@
 -    [악보 다운로드](https://images.app.goo.gl/teyKwVRmoQisgpiH8)
 -    [반주 음원 다운로드](https://youtu.be/A03RbDd5Bi0)
 
-### [동영상 업로드 링크](http://76.169.21.23/wl/?id=riirAdYfb3x0OmgODcZNLCRWT1PWIdU2&mode=regular)
+> [동영상 업로드 링크](http://76.169.21.23/wl/?id=riirAdYfb3x0OmgODcZNLCRWT1PWIdU2&mode=regular)
 
 
 
